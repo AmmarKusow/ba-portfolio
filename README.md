@@ -1,6 +1,6 @@
 # Business Analysis Portfolio
 **Ammar Ali** — IT Business Analyst / Business Systems Analyst
-📍 Brooklyn Park, MN | [LinkedIn](www.linkedin.com/in/ammar-kusow) | [Email](mailto:ammar.kusow2@gmail.com)
+📍 Brooklyn Park, MN | [LinkedIn](https://www.linkedin.com/in/ammar-kusow) | [Email](mailto:ammar.kusow2@gmail.com)
 
 ---
 
